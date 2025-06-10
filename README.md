@@ -1,1 +1,1 @@
-# Font awesome (Cracked)
+# Font awesome (Cracked ⚡)
